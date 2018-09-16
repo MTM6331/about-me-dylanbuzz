@@ -2,4 +2,4 @@
 
 ## by Dylan Toal
 
-this summer i worked a lot.
+this summer i worked a lot!
